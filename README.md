@@ -1,0 +1,1 @@
+# DelphidiaoyongTesseract4.0jinxingOCRshibieyidabaoquanbuDLL
